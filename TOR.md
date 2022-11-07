@@ -23,3 +23,5 @@ Here are some ideas to get you started:
 - 👯 Torch
 
 - 👯 torchdeedp3i2jigzjdmfpn5ttjhthh5wbmda2rr3jvqjg5p77c54dqd.onion/
+- https://thehiddenwiki.com/
+- 👯  https://thehiddenwiki.com/#:~:text=Some%20of%20the%20most%20interesting%20sites%20on%20The,KNOWN%20BALANCE%20%26%20Worldwide%20CC%20%26%20CVV%20.
