@@ -10,10 +10,10 @@ You can click the Preview link to take a look at your changes.
 --->
 
 
-indusoft web studio تحميل
-https://downloadly.ir/software/engineering-specialized/indusoft-web-studio/
-For information
+- indusoft web studio تحميل
+- https://downloadly.ir/software/engineering-specialized/indusoft-web-studio/
+- For information
 
-https://edgema.demo.aveva.com:504/avevaedge2020/index.html#screen=startup.sg&guestuser=1
-Tutorial
-https://www.youtube.com/watch?v=_1A6dE3zaUM&list=PLXxZ1LeKBBR73kZXCAoy5B2Br0Zb0BZga
+- https://edgema.demo.aveva.com:504/avevaedge2020/index.html#screen=startup.sg&guestuser=1
+- Tutorial
+- https://www.youtube.com/watch?v=_1A6dE3zaUM&list=PLXxZ1LeKBBR73kZXCAoy5B2Br0Zb0BZga
