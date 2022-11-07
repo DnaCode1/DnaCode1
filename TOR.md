@@ -45,7 +45,7 @@ Uncensored Hidden Wiki can be accessed using wiki47qqn6tey4id7xeqb6l7uj6jueacxlq
 
 Take a minute and check our scam list to know more about dark web scammers.
 
-Hidden Search Engines
+- 🌱Hidden Search Engines
 http://oniondxjxs2mzjkbz7ldlflenh6huksestjsisc3usxht3wqgk6a62yd.onion/ – OnionIndex Search Engine
 http://duckduckgogg42xjoc72x3sjasowoarfbgcmvfimaftt6twagswzczad.onion/ – DuckDuckGo Search Engine
 http://3bbad7fauom4d6sgppalyqddsqbf5u5p56b5k5uk2zxsy3d6ey2jobad.onion/ – OnionLand Search
@@ -55,7 +55,7 @@ http://juhanurmihxlp77nkq76byazcldy2hlmovfu2epvl5ankdibsot4csyd.onion/ – Ahmia
 http://metagerv65pwclop2rsfzg4jwowpavpwd6grhhlvdgsswvo6ii4akgyd.onion/ – MetaGer – German Search
  
 
-Commercial Markets
+- 🌱Commercial Markets
 http://blackma6xtzkajcy2eahws4q65ayhnsa6kghu6oa6sci2ul47fq66jqd.onion/ – BlackMart
 http://caribcc5jik7maeqfit7h34af7ntatggbmlfhyxjnqnrhij7gjt5vtid.onion/ – Caribbean Cards
 http://abraxasdegupusel.onion/ – Abraxas – offline
@@ -67,7 +67,7 @@ http://escrowkwttyhfyab3clkln7lfveyg7pfdwsv5vner35mhg7oaqz5uiid.onion/ – The E
 http://r6rcmz6lga4i5vb4.onion/ – Black Market Reloaded – offline
  
 
-Email Providers
+- 🌱Email Providers
 http://protonmailrmez3lotccipshtkleegetolb73fuirgj7r4o4vfu7ozyd.onion/ – ProtonMail
 http://tp7mtouwvggdlm73vimqkuq7727a4ebrv4vf4cnk6lfg4fatxa6p2ryd.onion/ – Alt Address
 http://secmail63sex4dfw6h2nsrbmfz2z6alwxe4e3adtkpd4pcvkhht4jdad.onion/ – secMail
@@ -80,7 +80,7 @@ http://mail2torjgmxgexntbrmhvgluavhj7ouul5yar6ylbvjkxwqf6ixkwyd.onion/ – Mail2
 http://underwood2hj3pwd.onion/ – Underwood’s Mail
  
 
-Forums / Social
+- 🌱Forums / Social
 http://dreadytofatroptsdj6io7l3xptbet6onoyno2yv7jicoxknyazubrad.onion/ – dread
 http://germany2igel45jbmjdipfbzdswjcpjqzqozxt4l33452kzrrda2rbid.onion/ – Deutschland im Deep Web Forum
 http://answerszuvs3gg2l64e6hmnryudl5zgrmwm3vh65hzszdghblddvfiqd.onion/ – Hidden Answers
@@ -97,7 +97,7 @@ http://notbumpz34bgbz4yfdigxvd6vzwtxc3zpt5imukgl6bvip2nikdmdaad.onion/ – Ableo
 http://ijeeynrc6x2uy5ob.onion/ – The Calyx Institute (Jabber)
  
 
-Onion Hosting / Domain Services
+- 🌱Onion Hosting / Domain Services
 http://mgibojrlzdfoajbn.onion/ – TorShops
 http://fhostingineiwjg6cppciac2bemu42nwsupvvisihnczinok362qfrqd.onion/ – Freedom Hosting Reloaded
 http://spore64i5sofqlfz5gq2ju4msgzojjwifls7rok2cti624zyq3fcelad.onion/ – SporeStack
@@ -109,7 +109,7 @@ http://onionname3jpufot.onion/ – OnionName
 http://garlic7ravilyupx.onion/ – Garlic – Onion Generator
  
 
-Whistleblowing / News
+- 🌱Whistleblowing / News
 http://p53lf57qovyuvwsc6xnrppyply3vtqm7l6pcobkmyqsiofyeznfu5uqd.onion/ – ProPublica
 http://occrpweb4n2vlmih.onion/ – Organized Crime and Corruption Reporting Project
 http://nytimes3xbfgragh.onion/ – The New York Times
@@ -123,20 +123,20 @@ http://dwnewsvdyyiamwnp.onion/ – DW
 http://27m3p2uv7igmj6kvd4ql3cct5h3sdwrsajovkkndeufumzyfhlfev4qd.onion/ – The Intercept
  
 
-File Sharing
+- 🌱File Sharing
 http://bcloudwenjxgcxjh6uheyt72a5isimzgg4kv5u74jb2s22y3hzpwh6id.onion/ – BlackCloud
 http://zerobinftagjpeeebbvyzjcqyjpmjvynj5qlexwyxe7l3vqejxnqv5qd.onion/ – ZeroBin
 http://keybase5wmilwokqirssclfnsqrjdsi7jdir5wy7y7iu3tanwmtp6oid.onion/ – Keybase
 http://secrdrop5wyphb5x.onion/ – SecureDrop
  
 
-Hacking
+- 🌱Hacking
 http://torc5bhzq6xorhb4.onion/ – Turkish Citizenship Database
 http://relateoak2hkvdty6ldp7x67hys7pzaeax3hwhidbqkjzva3223jpxqd.onion/ – RelateList
 http://blackhost7pws76u6vohksdahnm6adf7riukgcmahrwt43wv2drvyxid.onion/ – Hacker Game
  
 
-Others
+- 🌱Others
 http://expyuzz4wqqyqhjn.onion/ – Tor Project
 http://nzh3fv6jc6jskki3.onion/ – riseup
 http://sejnfjrq6szgca7v.onion/ – Debain OS
@@ -171,7 +171,9 @@ http://3kyl4i7bfdgwelmf.onion/ – We Fight Censorship
 http://anonyradixhkgh5myfrkarggfnmdzzhhcgoy2v66uf7sml27to5n2tid.onion/ – Deep Web Radio
 http://62gs2n5ydnyffzfy.onion/ – IIT Underground
 http://clockwise3rldkgu.onion/ – Clockwise Library
-The Hidden Wiki
+
+
+- 🌱The Hidden Wiki
 We have listed down active dark web links. Bookmark our site do access the dark web links and dark web markets. We are now supporting v3 onion links in our above dark web lists.
 
 Disclaimer: TheHidden.wiki is not responsible for any loss or damage caused by accessing the above links. The above onion links are for only educational purposes. User is solely responsible for their actions on the TOR. We do not promote, advertise or encourage anyone.
