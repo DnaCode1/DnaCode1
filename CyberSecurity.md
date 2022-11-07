@@ -15,3 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 - 🔭 https://www.updatelap.com/2018/06/course-ethical-hacking.html
+For Kali linux
+- 🔭 https://www.youtube.com/channel/UCtDn0gnhJbzcqsJ1J-fra6w
